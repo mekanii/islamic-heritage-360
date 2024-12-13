@@ -34,3 +34,6 @@ Kehadiran IH360° menjadi sangat strategis mengingat belum adanya organisasi ser
   - Menginisiasi dan menyelenggarakan festival serta pameran sejarah Islam berkala yang menghadirkan pengalaman immersif dan edukatif bagi pengunjung.
   - Merancang dan mengembangkan program wisata ziarah dan sejarah yang berkualitas dengan standar pelayanan profesional dan konten edukasi yang mendalam.
   - Membangun dan memperkuat jaringan kerjasama internasional dengan organisasi-organisasi serupa untuk pertukaran pengetahuan dan pengalaman dalam pelestarian warisan sejarah Islam.
+
+## Timeline
+https://docs.google.com/spreadsheets/d/1Abwo4zHlMw6B6_f1u_TAoT9F22JoHWLqkOZZpr0iEnE/edit?gid=897263435#gid=897263435
