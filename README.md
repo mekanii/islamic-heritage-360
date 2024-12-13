@@ -10,12 +10,12 @@ Dengan menggabungkan kekuatan komunitas, teknologi digital, dan kearifan lokal, 
 Kehadiran IH360 menjadi sangat strategis mengingat belum adanya organisasi serupa yang memiliki pendekatan komprehensif dalam pelestarian warisan sejarah Islam di Indonesia. Dengan mengusung semangat kolaborasi dan inovasi, IH360 siap menjadi wadah bagi seluruh elemen masyarakat yang peduli terhadap pelestarian warisan sejarah Islam, sekaligus menjadi model organisasi yang dapat menginspirasi gerakan serupa di berbagai wilayah.
 
 ## Tujuan
-1. Pembangunan Komunitas
+1. Pembangunan Komunitas<br>
 - Membentuk aktivis pelestari sejarah Islam di seluruh Indonesia
 - Memfasilitasi forum diskusi dan pertukaran pengetahuan untuk generasi intelektual muda
 - Mendorong partisipasi aktif masyarakat dalam pelestarian sejarah Islam
 
-2. Edukasi dan Pemberdayaan
+2. Edukasi dan Pemberdayaan<br>
 - Menyelenggarakan program pendidikan sejarah Islam untuk berbagai kalangan
 - Melatih pemandu wisata sejarah Islam yang kompeten
 - Mengembangkan kurikulum dan modul pembelajaran yang interaktif
