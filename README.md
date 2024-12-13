@@ -15,22 +15,22 @@ Dengan menggabungkan kekuatan komunitas, teknologi digital, dan kearifan lokal, 
 Kehadiran IH360° menjadi sangat strategis mengingat belum adanya organisasi serupa yang memiliki pendekatan komprehensif dalam pelestarian warisan sejarah Islam di Indonesia. Dengan mengusung semangat kolaborasi dan inovasi, IH360° siap menjadi wadah bagi seluruh elemen masyarakat yang peduli terhadap pelestarian warisan sejarah Islam, sekaligus menjadi model organisasi yang dapat menginspirasi gerakan serupa di berbagai wilayah.
 
 ## Tujuan
-- Pembangunan Komunitas
-  - Membentuk aktivis pelestari sejarah Islam di seluruh Indonesia
-  - Memfasilitasi forum diskusi dan pertukaran pengetahuan untuk generasi intelektual muda
-  - Mendorong partisipasi aktif masyarakat dalam pelestarian sejarah Islam
+- **Pengembangan dan Pembangunan Komunitas Pelestari Warisan Sejarah Islam**
+  - Membentuk dan mengembangkan jaringan aktivis pelestari sejarah Islam di seluruh wilayah Indonesia melalui program pelatihan dan pembinaan yang berkelanjutan.
+  - Menciptakan dan memfasilitasi forum-forum diskusi yang aktif dan produktif sebagai wadah pertukaran pengetahuan bagi generasi intelektual muda dalam mengkaji dan memahami sejarah Islam.
+  - Mengembangkan program-program partisipatif yang melibatkan masyarakat secara aktif dalam upaya pelestarian sejarah Islam, termasuk kegiatan dokumentasi, konservasi, dan edukasi.
 
-- Edukasi dan Pemberdayaan
-  - Menyelenggarakan program pendidikan sejarah Islam untuk berbagai kalangan
-  - Melatih pemandu wisata sejarah Islam yang kompeten
-  - Mengembangkan kurikulum dan modul pembelajaran yang interaktif
-  - Memberdayakan masyarakat lokal dalam menjaga warisan sejarah
+- **Pengembangan Program Edukasi dan Pemberdayaan Masyarakat dalam Pelestarian Sejarah Islam**
+  - Merancang dan menyelenggarakan program pendidikan sejarah Islam yang komprehensif untuk berbagai kalangan masyarakat dengan metode pembelajaran yang adaptif dan inklusif.
+  - Mengembangkan program pelatihan profesional untuk menciptakan pemandu wisata sejarah Islam yang kompeten dan bersertifikasi dalam memberikan pengalaman wisata yang berkualitas.
+  - Menyusun dan mengembangkan kurikulum serta modul pembelajaran interaktif yang mengintegrasikan teknologi modern dengan konten sejarah Islam yang otentik.
+  - Melaksanakan program pemberdayaan masyarakat lokal secara sistematis dalam upaya menjaga dan mengelola warisan sejarah di wilayah mereka.
 
-- Digitalisasi dan Teknologi
-  - Membangun platform digital untuk akses informasi sejarah Islam
-  - Membuat konten digital yang edukatif dan menarik
+- **Implementasi Digitalisasi dan Pengembangan Teknologi dalam Pelestarian Sejarah Islam**
+  - Membangun dan mengembangkan platform digital yang komprehensif sebagai pusat informasi sejarah Islam yang mudah diakses oleh seluruh lapisan masyarakat.
+  - Memproduksi konten digital edukatif dan menarik dalam berbagai format (video, podcast, infografis, dll) yang disesuaikan dengan kebutuhan dan preferensi generasi muda.
 
-- Promosi dan Kolaborasi
-  - Menyelenggarakan festival dan pameran sejarah Islam
-  - Mengembangkan program wisata ziarah dan sejarah yang berkualitas
-  - Menjalin kerjasama internasional dengan organisasi serupa
+- **Pengembangan Program Promosi dan Penguatan Jaringan Kolaborasi Internasional**
+  - Menginisiasi dan menyelenggarakan festival serta pameran sejarah Islam berkala yang menghadirkan pengalaman immersif dan edukatif bagi pengunjung.
+  - Merancang dan mengembangkan program wisata ziarah dan sejarah yang berkualitas dengan standar pelayanan profesional dan konten edukasi yang mendalam.
+  - Membangun dan memperkuat jaringan kerjasama internasional dengan organisasi-organisasi serupa untuk pertukaran pengetahuan dan pengalaman dalam pelestarian warisan sejarah Islam.
